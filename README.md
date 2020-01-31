@@ -4,6 +4,6 @@
 
 
 Вы можете записаться на этот курс с 95% скидкой по следующей ссылке:
-https://www.udemy.com/course/draft/2202822/?referralCode=C4474B876C493E8062DB
+https://www.udemy.com/course/complete-python-bootcamp-russian/?referralCode=C4474B876C493E8062DB
 
 Спасибо!
